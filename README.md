@@ -1,1 +1,1 @@
-#Resume of Ahmet Salih Çiçek
+Resume of Ahmet Salih Çiçek
